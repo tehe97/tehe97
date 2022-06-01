@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tehe97
+- 👀 I’m interested in Minecraft and other collaborative games
+- 🌱 I’m currently learning how to do lots of things...
+- 💖 Always curious, always searching for answers
